@@ -1,4 +1,4 @@
-- 📚 Hi, I am @CAGolembeski [https://sites.google.com/newschool.edu/cgolembeski]
+- 📚 Hi, I am Cynthia Golembeski (@CAGolembeski).
 - 📊 I use mixed methods to analyze how policy, law, ethics, and management operate at the nexus of criminal legal and health systems. Related research focuses on social safety net policies as determinants of health and safety.
 - 📄 I recently wrote "What are bail funds? Two social policy experts explain," for The Conversation [https://theconversation.com/what-are-bail-funds-two-social-policy-experts-explain-182631].
 - ⚖️ I collaborate on empirical research, which informs policies that reduce social, economic, and health-related harms.
